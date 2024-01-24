@@ -1,4 +1,4 @@
-## Perfil de <strong> Amiel SHIKa Zi <strono/> seja bem vindo 五五
+## Perfil de <strong> Amiel SHIKa Zi <strong/> seja bem vindo 五五
 
  <div>
    <a href="https://github.com/AMIELSrb">
